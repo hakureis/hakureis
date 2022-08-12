@@ -1,4 +1,4 @@
-- hakureis/ayanamis/reo/oreonx
+- hakureis/ayanamis/obvients/oreonx
 - i like touhou, music, and initial d
 - i have a cirno fumo irl
 - this user has inferiority complex
